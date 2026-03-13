@@ -1,5 +1,5 @@
 <p align="center">
-Heard behavior ★ cant keep it quiet !
+Heard behavior , cant keep it quiet !
 <p align="center">
   int⠀⠀freely⠀⠀/⠀⠀RP⠀⠀iwcau
 
