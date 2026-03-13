@@ -4,7 +4,7 @@ Heard behavior ★ cant keep it quiet !
   int⠀⠀freely⠀⠀/⠀⠀RP⠀⠀iwcau
 
 <p align="center">
-<img src="[[(https://i.ibb.co/s977SF4S/yeller.png)]](https://i.postimg.cc/N0jFMWJw/yeller.png)">
+<img src="(https://i.postimg.cc/N0jFMWJw/yeller.png)">
 <p align="center">
   ★
 <p align="center">
