@@ -1,5 +1,5 @@
 <p align="center">
-beard behavior , cant keep it quiet !
+heard behavior , cant keep it quiet !
 <p align="center">
   int⠀⠀freely⠀⠀-⠀⠀rp⠀⠀iwcau
 <p align="center">
